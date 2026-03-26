@@ -2,7 +2,6 @@
 - I'm 18 years old (2006)
 - I live in La Habana, Cuba
 - I speak Spanish, English und Deutsch!
-- I'm [Non-binary](https://en.wikipedia.org/wiki/Non-binary)
 ## What do I like?
 - I love Mathematics, Physics and Computer Science!
 - I love Chess, casually! (peak 1200 ELO)
